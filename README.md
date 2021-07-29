@@ -22,12 +22,12 @@ My name is "Shoaib Amin Saad" However, you can call me "Saad"😎 Always prepare
 
 # ✅Tools Skills
 
-- VS Code✔️	
-- Git✔️
-- Figma✔️
-- Adobe XD✔️
-- Adobe Photoshop✔️
-- Adobe Illustrator✔️
+- VS Code
+- Git
+- Figma
+- Adobe XD
+- Adobe Photoshop
+- Adobe Illustrator
 
 # ✅Language
 
