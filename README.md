@@ -29,15 +29,16 @@ My name is "Shoaib Amin Saad" However, you can call me "Saad"😎 Always prepare
 - Adobe Photoshop✔️
 - Adobe Illustrator✔️
 
-# ✅Let's Talk
-
-- 📧Email: __shoaibaminsaad__
-- 📞Phone: __+8801987536778__
-
 # ✅Language
 
 - English (Fluent)
 - Bengali (Native)
 - Spanish (Conversational)
 - Arabic (Conversational)
+
+# ✅Let's Talk
+
+- 📧Email: __shoaibaminsaad__
+- 📞Phone: __+8801987536778__
+- __I'd love to meet up with you to discuss your projects, and potential collaborations.__
 
