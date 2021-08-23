@@ -9,8 +9,6 @@ Quality of work is the most important thing to me and I can always provide it wh
 
 If you feel we would work great together, send me a massage. I would love to help your business work grow!!!
 
-Thanks,
-shoaibaminsaad
 
 ##
 
