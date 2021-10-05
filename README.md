@@ -3,11 +3,14 @@
 
 ### 📖About Me
 
-I am Saad, A Front-end web developer. I love to coding and always prepared to learn and work. I am able to prepare high-quality work using my skills and experience. my up-to-date knowledge of technology and detailed methodology allows me to manage projects with positive results. depending on my skills, you will revolutionize your project with the best solution and I will be happy to be part of your success story by achieving new values and goals.
+My name's Saad, A MERN Stack Developer. I love to coding and always prepared to learn and work. I am able to prepare high-quality work using my skills and experience. my up-to-date knowledge of technology and detailed methodology allows me to manage projects with positive results. depending on my skills, you will revolutionize your project with the best solution, and I will be happy to be part of your success story by achieving new values and goals.
 
-Quality of work is the most important thing to me and I can always provide it whether the project is big or small.
+Quality of work is the most important thing to me, and I can always provide it whether the project is big or small.
 
-If you feel we would work great together, send me a massage. I would love to help your business work grow!!!
+If you feel we would work great together, send me a message. I would love to help your business work grow!!!
+
+Thanks,
+shoaibaminsaad
 
 
 ##
