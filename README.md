@@ -1,5 +1,5 @@
 ![GitHub Logo](/github-01.png)
-# Hi there, I'm Saad👋
+# Hi there👋
 
 ### 📖About Me
 
